@@ -45,7 +45,7 @@ Egekem,
 Çok kısa zamanda hayatımda bu kadar yer kaplamayı nasıl başardın bilmiyorum. Benim için çok zor bir zamanda beliriverdin ve yanımdan bir daha ayrılmadın. Bunu neden yaptığını hiç anlayamayacağım gibi sana yeterince teşekkür edebileceğimi de sanmıyorum. Ege deyince aklıma endişe verici derecede yetenekli, nadir zamanlarda komik ve bizden nefret ediyor gibi davransa da aslında arkadaşlarına çok değer veren biri geliyor. Zaman geçtikçe iyice birbirimize dönüşüyor olmamız beni korkutuyor. Belki de görüşmeyi bırakmalıyız. Sevdiğimiz birinden alıntı yapmam gerekirse; seninle arkadaş olmak berbat bir insanla arkadaşız ve onu sevmeye mahkum edilmişiz Gibi. Yine de senin arkadaşlığını hiçbir şeye değişmem. Daha nice beraber geçirilen yazlara, bıkmadan dinlenilen müziklere ve Güneşe Doğru atılan adımlara…
 
 
-## Baturalp Güven
+## Baturalp Güven
 Tanımadığım bir çocuktan aldığım "Kanka benim de sakallarım ne zamana böyle olur?" şeklindeki bir soruya "Bir daha bu d*llamayı nerede göreceğim?" diyerek "Sene sonunda full sakalın olur ya(!)" dediğim için çok pişman oldum. Bu kadar yakın olacağımız nereden bilebilirdim ki? Bu konuşma üstünden yaklaşık bir yıl sonra kardeşim diyebileceğim, 7/24 görüşüp, yemeğini, evini arkadaş çevreni paylaştığın bir insan oldum. Çıktığın öğrenci evinden ve kalan her şeyinden faydalandım. Bu yüzden sana bu yıllık yazımda hayatıma girdiğin için teşekkür olarak yıllar önce vermem gereken o acı cevabı verip borcumu ödemek istiyorum: "Şu yaşına kadar simitçi bıyığını geçemediysen, bu saatten sonra da çok da bir şey olmaz gibi kanka". Bu yazıma bakarak dalga geçeceğimiz nice senelere.
 
 ## Özgür Toprak Albayrak
